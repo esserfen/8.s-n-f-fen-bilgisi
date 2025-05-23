@@ -1,0 +1,1 @@
+# 8.s-n-f-fen-bilgisi
